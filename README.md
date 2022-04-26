@@ -1,0 +1,6 @@
+- My name is Aire Bea.
+- A student from China🇨🇳.
+- I know Python, Pygame and C++.
+- But I'm a little poor💸😭😭😭~
+- My math is very much!
+- But I can't stand function…
